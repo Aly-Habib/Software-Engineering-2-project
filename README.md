@@ -1,1 +1,1 @@
-Software engineering 2 projetc
+Software engineering 2 project
